@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @turtlebox1
+- 👀 I’m interested in D&D, programming, learning, quantum mech., Qbism, and curiosity.
+- 🌱 I’m currently learning cybersec, french, how to best polish my code.
+- 💞️ I’m looking to collaborate on any projects at all. I am reaching for something new these days!
+- 📫 reach out at imealmt@gmail.com, I can provide a better email after making contact. 
